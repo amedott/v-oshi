@@ -9,7 +9,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
 
 <details>
-  <summary>Masquerade／ますかれーど</summary>   
+  <summary>ますかれーど／Masquerade</summary>   
   
 - [Tenshi Nano](https://twitter.com/angelnano1004?s=21) | 💙
 - [Yumemiya Alice](https://twitter.com/aliceyume1126?s=21) | 🃏
