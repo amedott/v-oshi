@@ -9,6 +9,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
 - [花鶏小鳥子／Atori Kotoko](https://twitter.com/kotoko_atori) | 〽🕊
 - [あやみ／Ayamy](https://twitter.com/ayamy_garubinu) | 🐾
+- [夢飼つつか／Yumekau Tsustuka](https://twitter.com/tutuka_yumekau) | 🔔💭
 
 <details>
   <summary>ますかれーど／Masquerade</summary>   
