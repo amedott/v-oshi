@@ -1,7 +1,7 @@
 Ame's VTuber Oshis (Not particularly ranked.)   
 あめの推すVさんリスト　（特にランクではない）
 
-##個人／Independents
+## 個人／Independents
 - [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa?s=21) | 🦋☕
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
 - [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
@@ -10,10 +10,10 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [あやみ／Ayamy](https://twitter.com/ayamy_garubinu) | 🐾
 - [夢飼つつか／Yumekau Tsustuka](https://twitter.com/tutuka_yumekau) | 🔔💭 
 
-##ホロライブ／Hololive
+## ホロライブ／Hololive
 - [ときのそら／Tokino Sora](https://twitter.com/tokino_sora) | 🐻 (๑╹ᆺ╹)
 
-##プロプロプロダクション／ProProProduction
+## プロプロプロダクション／ProProProduction
 
 - [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin?s=21) | 🌺☁️
 - [咲夜あずさ/Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
