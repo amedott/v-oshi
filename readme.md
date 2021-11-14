@@ -12,6 +12,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 
 ## ホロライブ／Hololive
 - [ときのそら／Tokino Sora](https://twitter.com/tokino_sora) | 🐻 (๑╹ᆺ╹)
+- [常闇トワ／Tokoyami Towa](https://twitter.com/tokoyamitowa) | 👾
 
 ## プロプロプロダクション／ProProProduction
 
