@@ -13,18 +13,20 @@ Ame's VTuber Oshis (Not particularly ranked.)
 ## ホロライブ／Hololive
 - [ときのそら／Tokino Sora](https://twitter.com/tokino_sora) | 🐻 (๑╹ᆺ╹)
 - [常闇トワ／Tokoyami Towa](https://twitter.com/tokoyamitowa) | 👾
+- [沙花叉クロヱ／Sakamata Chloe](https://twitter.com/sakamatachloe) | 🎣
 
 ## プロプロプロダクション／ProProProduction
 
 - [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin?s=21) | 🌺☁️
-- [咲夜あずさ/Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
-- [憩居ももあ/Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
+- [咲夜あずさ／Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
+- [憩居ももあ／Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
 
 <details>
   <summary>ますかれーど／Masquerade</summary>   
   
 - [天使なの／Tenshi Nano](https://twitter.com/angelnano1004?s=21) | 💙
 - [夢宮ありす／Yumemiya Alice](https://twitter.com/aliceyume1126?s=21) | 🃏
+- [星乃すぴか／Hoshino Supika](https://twitter.com/supika_hoshino?s=21) | 🌟
 - [桃星める／Momose Meru](https://twitter.com/momose_meruu?s=21) | 🍑💞
   
   </details>
