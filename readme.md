@@ -16,12 +16,13 @@ Ame's VTuber Oshis (Not particularly ranked.)
 
 ## プロプロプロダクション／ProProProduction
 
-- [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin?s=21) | 🌺☁️
+- [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin) | 🌺☁️
 - [咲夜あずさ／Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
 - [憩居ももあ／Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
+- [ハル・レヨン・ベール／Hal Rayon Vert](https://twitter.com/halrayonvert)
 
 ## Other／その他
-- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa?s=21) | 🦋☕
+- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
 
 <details>
   <summary>ますかれーど／Masquerade</summary>   
