@@ -19,7 +19,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin) | 🌺☁️
 - [咲夜あずさ／Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
 - [憩居ももあ／Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
-- [ハル・レヨン・ベール／Hal Rayon Vert](https://twitter.com/halrayonvert)
+- [ハル・レヨン・ベール／Hal Rayon Vert](https://twitter.com/halrayonvert) 🦋✨
 
 ## Other／その他
 - [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
