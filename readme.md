@@ -2,7 +2,6 @@ Ame's VTuber Oshis (Not particularly ranked.)
 あめの推すVさんリスト　（特にランクではない）
 
 ## 個人／Independents
-- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa?s=21) | 🦋☕
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
 - [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
@@ -20,6 +19,9 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin?s=21) | 🌺☁️
 - [咲夜あずさ／Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
 - [憩居ももあ／Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
+
+## Other／その他
+- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa?s=21) | 🦋☕
 
 <details>
   <summary>ますかれーど／Masquerade</summary>   
