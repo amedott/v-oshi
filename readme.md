@@ -3,7 +3,6 @@ Ame's VTuber Oshis (Not particularly ranked.)
 
 ## 個人／Independents
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
-- [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
 - [花鶏小鳥子／Atori Kotoko](https://twitter.com/kotoko_atori) | 〽🕊
 - [あやみ／Ayamy](https://twitter.com/ayamy_garubinu) | 🐾
@@ -23,6 +22,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 
 ## Other／その他
 - [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
+- [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
 
 <details>
   <summary>ますかれーど／Masquerade</summary>   
