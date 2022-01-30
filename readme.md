@@ -5,7 +5,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
 - [花鶏小鳥子／Atori Kotoko](https://twitter.com/kotoko_atori) | 〽🕊
-- [夢飼つつか／Yumekau Tsustuka](https://twitter.com/tutuka_yumekau) | 🔔💭 
+- [夢飼つつか／Yumekau Tsutsuka](https://twitter.com/tutuka_yumekau) | 🔔💭 
 
 ## ホロライブ／Hololive
 - [ときのそら／Tokino Sora](https://twitter.com/tokino_sora) | 🐻 (๑╹ᆺ╹)
