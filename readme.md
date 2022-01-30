@@ -5,7 +5,6 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
 - [花鶏小鳥子／Atori Kotoko](https://twitter.com/kotoko_atori) | 〽🕊
-- [あやみ／Ayamy](https://twitter.com/ayamy_garubinu) | 🐾
 - [夢飼つつか／Yumekau Tsustuka](https://twitter.com/tutuka_yumekau) | 🔔💭 
 
 ## ホロライブ／Hololive
@@ -21,17 +20,12 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [ハル・レヨン・ベール／Hal Rayon Vert](https://twitter.com/halrayonvert) | 🦋✨
 - [水羽そら／Mizuhane Sora](https://twitter.com/MizuhaneSora) | 💙💭
 
-## Other／その他
-- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
-- [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
-
-<details>
-  <summary>ますかれーど／Masquerade</summary>   
-  
+## ますかれーど／Masquerade
 - [天使なの／Tenshi Nano](https://twitter.com/angelnano1004?s=21) | 💙
 - [夢宮ありす／Yumemiya Alice](https://twitter.com/aliceyume1126?s=21) | 🃏
 - [星乃すぴか／Hoshino Supika](https://twitter.com/supika_hoshino?s=21) | 🌟
 - [桃星める／Momose Meru](https://twitter.com/momose_meruu?s=21) | 🍑💞
-  
-  </details>
 
+## Other／その他
+- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
+- [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
