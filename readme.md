@@ -17,6 +17,7 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [花雲りん／Hanakumo Rin](https://twitter.com/hanakumo_rin) | 🌺☁️
 - [咲夜あずさ／Sakuya Azusa](https://twitter.com/sakuya_azusa) | 🦊🎴
 - [憩居ももあ／Ikoi Momoa](https://twitter.com/ikoimomoa) | 🍑👑
+- [白瀬あおい／Shirose Aoi](https://twitter.com/shiroseaoi) | 🐻‍❄️❄️
 - [ハル・レヨン・ベール／Hal Rayon Vert](https://twitter.com/halrayonvert) | 🦋✨
 - [水羽そら／Mizuhane Sora](https://twitter.com/MizuhaneSora) | 💙💭
 
@@ -27,5 +28,4 @@ Ame's VTuber Oshis (Not particularly ranked.)
 - [桃星める／Momose Meru](https://twitter.com/momose_meruu?s=21) | 🍑💞
 
 ## Other／その他
-- [胡蝶ここあ／Kochou Cocoa](https://twitter.com/kochoucocoa) | 🦋☕
 - [天神子兎音／Tenjin Kotone](https://twitter.com/kotonegami) | ⛩
