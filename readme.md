@@ -4,7 +4,6 @@ Ame's VTuber Oshis (Not particularly ranked.)
 ## 個人／Independents
 - [カグラナナ／Kagura Nana](https://twitter.com/nana_kaguraaa) | 🌶️
 - [伊万里いよ／Imari Iyo](https://twitter.com/imari_iyo)
-- [花鶏小鳥子／Atori Kotoko](https://twitter.com/kotoko_atori) | 〽🕊
 - [夢飼つつか／Yumekau Tsutsuka](https://twitter.com/tutuka_yumekau) | 🔔💭 
 
 ## ホロライブ／Hololive
